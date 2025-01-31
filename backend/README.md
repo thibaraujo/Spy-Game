@@ -1,0 +1,1 @@
+## Game Spy - Versão Brasileira
